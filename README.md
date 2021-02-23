@@ -1,2 +1,2 @@
 # lumptch
-a project 
+what's for lumptch? Nobody knows... 
